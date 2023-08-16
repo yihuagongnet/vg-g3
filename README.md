@@ -11,6 +11,14 @@ https://lgbt2023.com
 ```
 # vg-g3  lgbt2023最新域名网址：
 
+ https://lgbt2023.lat （2023.8.16更新）
+ 
+ https://lgbt2023.cfd （2023.8.16更新）
+ 
+ https://lgbt2023.space （2023.8.16更新）
+ 
+ https://lgbt2023.website （2023.8.16更新）
+
 https://gv2019.lat
 
 https://gv2019.space
